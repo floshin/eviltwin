@@ -1,1 +1,1 @@
-Reconstruction of the official website of Evil Twin: Cyprien's Chronicles by UbiSoft, that was hosted under the domain http://www.eviltwin-thegame.com/ and was partly preserved in the internet archive. 
+Reconstruction of the official website of Evil Twin: Cyprien's Chronicles by UbiSoft, that was hosted under the domains http://www.eviltwin.fr and http://www.eviltwin-thegame.com/. It was partly preserved in the internet archive. 
